@@ -5,4 +5,3 @@
 
 ![4월 근무표](https://github.com/user-attachments/assets/abc66afe-d512-4049-ad26-41b57e1b086f)
 
-![5월 근무표](https://github.com/user-attachments/assets/c8929035-a8f7-46c9-b724-69a57dc63ca0)
